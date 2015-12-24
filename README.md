@@ -6,4 +6,4 @@ How could it?  I am no dictator of the future.  What happens beyond the here and
 
 So read, or don't read, or read some and not others.  Who am I to say?
 
-'
+But then again, who are you?
